@@ -6,7 +6,8 @@ This is backer's list.
 
 Thanks a lot for your support!!!
 
-## 1$
+## Individual Support
 
 - Jonas Francisco
 - Emilian Bold
+- John
