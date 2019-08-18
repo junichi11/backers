@@ -9,5 +9,4 @@ Thanks a lot for your support!!!
 ## Individual Support
 
 - Jonas Francisco
-- Emilian Bold
 - John
